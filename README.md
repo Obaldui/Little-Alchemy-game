@@ -1,1 +1,1 @@
-# Little-Alchemy-game-on-C-
+# Little-Alchemy-game
