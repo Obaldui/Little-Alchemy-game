@@ -1,1 +1,5 @@
-
+![d2ac52f006dfea2503027d8ebcaeb76c-0](https://github.com/Obaldui/Little-Alchemy-game/assets/147303348/d99e95dc-9bbd-4a67-b013-2aff23718c33)
+![d2ac52f006dfea2503027d8ebcaeb76c-1](https://github.com/Obaldui/Little-Alchemy-game/assets/147303348/2938b80e-79b8-4df0-a011-a68c8a48b343)
+![d2ac52f006dfea2503027d8ebcaeb76c-2](https://github.com/Obaldui/Little-Alchemy-game/assets/147303348/e802521f-825e-48a3-b099-8b7705bc891c)
+![d2ac52f006dfea2503027d8ebcaeb76c-3](https://github.com/Obaldui/Little-Alchemy-game/assets/147303348/f052fbef-1ee7-4ac7-9147-31d3b9c2b537)
+![d2ac52f006dfea2503027d8ebcaeb76c-4](https://github.com/Obaldui/Little-Alchemy-game/assets/147303348/3315e5d8-9d09-4b21-a8e2-cb22d34949cc)
